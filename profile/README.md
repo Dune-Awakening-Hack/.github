@@ -4,7 +4,7 @@
 
 **Dune: Awakening hacks** are shaking up the survival MMO scene. With spice wars, PvP raids, and the constant threat of sandworms, every edge counts. Players are turning to **ESP hacks, wallhacks, aimbots, and trainers** to stay alive and dominate the desert. This guide explores the most powerful hacks that can give you total control over Arrakis.
 
-[![Get](https://img.shields.io/badge/Get%20The-Trainer-blueviolet)](https://dune-awakening-hack.github.io/.github/)
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://dune-awakening-hack.github.io/.github/)
 ---
 
 ## Product Description
